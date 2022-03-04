@@ -34,7 +34,7 @@ Welcome to code challenge # 2 below are all the resources you need for the code 
 ### **Submission Links:** :speak_no_evil:
 
 - [Facebook Submisions](https://www.facebook.com/shaunPX1/)
-- [Discord Submisions](https://discord.gg/Mu52QeAE)
+- [Discord Submisions](https://discord.gg/qQ5DAJ56yW)
 
 
 
